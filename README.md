@@ -1,5 +1,6 @@
 Who are you? What is your background?
-# I am Jehoshua Ucal Rowe. Hi my name is Jehoshua Ucal Rowe. My background is Canadian Jamaican decent. Ive had the priviladge 
+# I am Jehoshua Ucal Rowe. 
+Hi my name is Jehoshua Ucal Rowe. My background is Canadian Jamaican decent. Ive had the priviladge 
 in living in both countrys for a bit which Ive learnt alot from both.
 
 What are your career goals?
